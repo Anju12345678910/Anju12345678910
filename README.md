@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anju12345678910
-- 👀 I’m interested in ...
+- 👀 I’m interested in how to make animated icons 
 - 🌱 I’m currently learning digtial media
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me anjali.premchand7@gmail.com
